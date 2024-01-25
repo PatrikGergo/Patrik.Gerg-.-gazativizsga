@@ -1,0 +1,2 @@
+# Patrik.Gerg-.-gazativizsga
+ágazativizsga
